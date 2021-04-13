@@ -1,3 +1,3 @@
 ## Welcome to Green Central!
 
-Readme Is Being Rebuilt... Soon™
+[Click Here](https://greenisless.wordpress.com)

@@ -1,3 +1,5 @@
 ## Welcome to Green Central!
 
-[Click Here](https://greenisless.wordpress.com)
+[Click Here Its A Website](https://greenisless.wordpress.com)
+
+Alright You Are Here To See Something Good Right?

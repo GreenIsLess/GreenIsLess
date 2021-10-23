@@ -1,8 +1,9 @@
 # Green Central
 ## Welcome to Green Central!
+Hi! I'm GreenIsLess I code a bit. Welcome to my Github Page :D
 
-[Click Here Its A Website](https://greenisless.wordpress.com)
+[My website, oh wait it doesn't work anymore :(](https://greenisless.wordpress.com)
 
-Alright You Are Here To See Something Good Right?
+Alright, You Are Here To See Something Good Right?
 
-This Might Be Updated Later
+This Might Be Updated Later.
